@@ -1,2 +1,2 @@
 # Kandidate-last-work
-kandidate last work
+kandidate is second part
